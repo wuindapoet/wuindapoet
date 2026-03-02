@@ -19,7 +19,7 @@
 -----
 ## ✨ About Me:
 
-- 🖥️ a freshman at the University of Information Technology - UIT
+- 🖥️ a student at the University of Information Technology - UIT
 - ❤️‍🔥 hobby: singing 🎙️ food-lover 🌭 hanging out with friends 🫂
 - 🌱 learning AI<br>˚∧＿∧  　+        —̳͟͞͞🩵<br>(  •‿• )つ  —̳͟͞͞ 🩵         —̳͟͞͞🩵 +<br>(つ　 <                —̳͟͞͞🩵    $${\color{lightblue}CONTACT: \space \color{white}euxcilia.quynhvo@gmail \color{white}.com}$$ <br>｜　 _つ      +  —̳͟͞͞🩵          —̳͟͞͞🩵 ˚<br>`し´<br>
      
@@ -34,3 +34,4 @@
 *<h2 align="center"> "Run to the rescue with love <br>
  And Peace will follow" <br>*
 ˚˚♡♡♡˚˚</h2>
+
