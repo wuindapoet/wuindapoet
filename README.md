@@ -17,7 +17,7 @@
 
 ###
 
-<p align="left">- I’m a student at the University of Information Technology - UIT, VNUHCM.<br>- I'm currently learning AI.</p>
+<p align="left">- from University of Information Technology - UIT, VNUHCM.<br>- currently learning AI.</p>
 
 ###
 
